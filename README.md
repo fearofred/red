@@ -1,5 +1,4 @@
-# red
-ALL ABOUT ME !
+# ⭐ ALL ABOUT ME . . .
  
 - BASIC INFO . . .
 currently fixated on 'tings like **brewshroom**, undertale/deltarune, *super mario*, and sonic!! 
